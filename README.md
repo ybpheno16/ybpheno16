@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **yashubdl@gmail.com**
 
-- 📄 My Resume Link: [https://drive.google.com/file/d/10dHajWiNYqcBepvwB7kt-V_0_Fpe62gf/view?usp=sharing](https://drive.google.com/file/d/1eDZ3ER5LDthEwWlZgoeHS6-kjssj73xc/view?usp=sharing)
+- 📄 My Resume Link: [https://drive.google.com/file/d/1l3_M3_3_Zak2EQy65WYFwHvD7YD9HKVW/view?usp=sharing](https://drive.google.com/file/d/1l3_M3_3_Zak2EQy65WYFwHvD7YD9HKVW/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
